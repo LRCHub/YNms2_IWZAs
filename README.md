@@ -1,0 +1,87 @@
+# STUTS – タイミングでしょ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Can you reach me?
+You have to reach me…
+You think I'm never alone
+you think I'm never alone
+夜中に誰かの腕の中で I moan
+切れたままのphone
+That's what you think I do huh?
+遊びと思ってるの?
+嘘だと思ってるの
+Of course man I can do that
+やりたきゃI can do that
+and you know
+あの日寝ずに泣いてた
+一人歌詞を書いてた
+送りあってるラインも
+既読せずに読めるの
+we know we know yea we know
+you know I called 見過ごすのがプライド
+「気づかなかった」
+「結構バタバタ」
+「疲れ寝てた」
+「forgot I turned it off」
+タイミングでしょ?
+しょうがないでしょ?
+そういうゲームでしょ?
+Loveはcompetition?
+言葉の隙間をlisten
+本当の気持ちはhidden
+約束はprison
+冷たさはweapon
+ならばこれは何のmission?
+タイミングでしょ?
+しょうがないでしょ?
+そういうゲームでしょ?
+Loveはcompetition?
+言葉の隙間をlisten
+本当の気持ちはhidden
+約束はprison
+冷たさはweapon
+ならばこれは何のmission?
+Huh?
+Fuck it I keep the pussy dripping
+可能性だけは常keepin
+cause old boy might slip in
+一度愛せば It's forever
+からそのつもりでやれば
+怒ることもないでしょ
+2人で居る時は恨みつらみっこなしでしょ
+いんだよ私 you really don't haffi love me
+ここにいない時、過去とか未来
+そもそも架空の話
+So smile now my love
+今とここだけ
+今とここはせめて
+Make love like 今夜がこの世の果て
+タイミングでしょ?
+しょうがないでしょ?
+そういうゲームでしょ?
+Loveはcompetition?
+言葉の隙間をlisten
+本当の気持ちはhidden
+約束はprison
+冷たさはweapon
+ならばこれは何のmission?
+Huh?
+誰かの面影
+探さぬと心がけ
+それだけ
+決めても浮かぶのあなたの顔だけ
+….
+ただどうしてもさ
+会いたいんだけど今からとかさすがに無理かな
+Cause I swear yo I can fucking love you down
+Dem other bitches が知りもしない次元で
+愛して、あげる、成れる、曲げるaxis
+あなただけはaccess easy
+Keep it keep me tease me
+Please me reach me
+I know you high right now bibi
+Can you reach me?
+Looks like you can reach me…
+```
