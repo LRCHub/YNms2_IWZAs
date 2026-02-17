@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "タイミングでしょ",
+  "base_artist": "STUTS",
+  "createdAt": "2026-02-17T11:37:29.810812Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "タイミングでしょ (feat. Awich)",
+      "artist": "STUTS",
+      "has_synced": false,
+      "path": "select/pl_01_タイミングでしょ_(feat._Awich)_STUTS.txt"
+    }
+  ]
+}
